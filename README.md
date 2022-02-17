@@ -1,0 +1,2 @@
+# scriptrikimaju
+Ok lah
